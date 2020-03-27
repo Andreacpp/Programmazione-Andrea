@@ -1,2 +1,0 @@
-Ciaooooooooooooooooooo
-Come stai
